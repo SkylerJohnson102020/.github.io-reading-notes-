@@ -12,8 +12,7 @@ My growth mindest stems directly from my training as a classical musician. As a 
 - If I feel as though I am getting frustrated or impatient, I will take a step back, breathe/reset, and attack a problem constructively. Sometimes I need a brief mental breather.
 
 ## Applying My Growth Mindset to Other Parts of Life
-I apply my growth mindset to many other things then just my work life. This applies to spending time with my son and helping him grow, working on my house, exercising and nutrition. One of my instructors in Chicago is the bass tromboinst of the Chicago Symphony, [Charles Vernon](https://cso.org/about/performers/chicago-symphony-orchestra/trombone/charles-vernon/). Just to give some context, this man is better than ever at his craft and in peak physical condition in his early 70s. In his late 60s and early 70s, this man has earned a black belt in Tae Kwon Do, swam one of the channels in the Great Lakes, and beat diabetes dropping 40 pounds in 3 months. 
-
+I apply my growth mindset to many other things then just my work life. This applies to spending time with my son and helping him grow, working on my house, exercising, and nutrition. One of my instructors in Chicago is the bass tromboinst of the Chicago Symphony, [Charles Vernon](https://cso.org/about/performers/chicago-symphony-orchestra/trombone/charles-vernon/). Just to give some context, this man is better than ever at his craft and in terrific physical condition in his early 70s. In his late 60s and early 70s, this man earned a black belt in Tae Kwon Do, swam one of the channels in the Great Lakes, and beat diabetes dropping 40 pounds in 3 months. This man is an inspiration to me to just keep going.
 In his own words:
 > _“As time passes, I realize that I must keep doing it, so that I can **KEEP** doing it!”_
 
