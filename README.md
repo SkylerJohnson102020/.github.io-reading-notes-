@@ -16,4 +16,4 @@ I apply my growth mindset to many other things then just my work life. This appl
 In his own words:
 > _“As time passes, I realize that I must keep doing it, so that I can **KEEP** doing it!”_
 
-For my about me, vist my [GitHub Portfolio](https://github.com/SkylerJohnson102020)
+For more about me, vist my [GitHub Portfolio](https://github.com/SkylerJohnson102020)
